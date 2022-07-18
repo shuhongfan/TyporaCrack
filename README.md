@@ -14,6 +14,6 @@ TyporaCrack  Typora破解
 
 
 
-邮箱：xiajierluantian@163.com (随便写)
+邮箱: (随便写)
 
 授权码: E8Q9Y5-KXMTL5-7578SL-4S5XKS
